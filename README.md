@@ -1,2 +1,2 @@
-To support my work:
-paypal.me/BCPTe
+To support my work:<br>
+[paypal.me/BCPTe](https://www.paypal.me/BCPTe)
