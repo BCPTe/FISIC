@@ -1,2 +1,2 @@
-# FISIC
-FISIC @ PoliTO 2021/2022
+To support my work:
+paypal.me/BCPTe
